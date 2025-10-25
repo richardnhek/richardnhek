@@ -64,7 +64,7 @@ Here’s what clients and collaborators have to say about working with me:
 
 ## 📩 Get in Touch
 
-- **Email:** [Insert Your Email Here]
-- **Website:** [Insert Your Website Here]
+- **Email:** nhekpichpanharith@gmail.com or richard@new-wave.io
+- **Website:** https://www.new-wave.io/
 
 Let’s build something amazing together! 🚀
